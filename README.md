@@ -6,7 +6,7 @@
 ![dzwig](http://www.pkm-sa.pl/glowna/wp-content/uploads/2013/06/PKMobjazd_6.jpg)
 <p align ="left">Budowa nowego wiaduktu nad ul.Sowackiego. źr.<i>www.pkm-sa.pl</i></p>
 
-<h3>Najważniejsze odkrycia archeologiczne ostatnich lat w Gdańsku i okolicach.
+<h3>Najważniejsze odkrycia archeologiczne ostatnich lat w Gdańsku i okolicach.</h3>
 
 - 2009 -  Jeden z najstarszych w świecie fragmentów Biblii. Siódmy znany przekład - apokryfu Ezdrasza znaleziono w latrynie przy ul. Kleszej w Gdańsku, podczas badania obszarów dawnej zabudowy mieszkalnej.  Przekład pisany minuskułą karolińską XII w.
 
