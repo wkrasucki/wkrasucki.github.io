@@ -8,7 +8,7 @@
 
 <h3>Najważniejsze odkrycia archeologiczne ostatnich lat w Gdańsku i okolicach.</h3>
 
-- 2009 - <p align = "justify">Jeden z najstarszych w świecie fragmentów Biblii. Siódmy znany przekład - apokryfu Ezdrasza znaleziono w latrynie przy ul. Kleszej w Gdańsku, podczas badania obszarów dawnej zabudowy mieszkalnej.  Przekład pisany minuskułą karolińską XII w.</p>
+- 2009 - Jeden z najstarszych w świecie fragmentów Biblii. Siódmy znany przekład - apokryfu Ezdrasza znaleziono w latrynie przy ul. Kleszej w Gdańsku, podczas badania obszarów dawnej zabudowy mieszkalnej.  Przekład pisany minuskułą karolińską XII w.
 
 - 2010 –  Grób wojownika huńskiego wraz z bogato wysadzanym bursztynami mieczem wykopano podczas badań ratunkowych w rejonie Juszkowa pod Gdańskiem. Jest to jeden z niewielu grobów tego plemienia w Europie i jedyny w naszej części Polski. Najsłynniejszym wodzem Hunów był Atylla. Do tej pory uważano, że Hunowie nie zapuszczali się tak daleko na północ.
 
